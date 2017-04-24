@@ -1,1 +1,0 @@
-# AmariG.github.io
